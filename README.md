@@ -1,3 +1,1 @@
-IF YOU SEE ME IN PT PLEASE INT / C+H.......... I LOVE BEING CUDDLED I LOVE INTERACTIONS I LOVE PEOPLE HIDING BEHIND ME
-IM VERY FRIENDLYT I DONT BITE PLEASE TALK KTO M<E TO ATLEAST CUDDLE PLEALSLELLSL BEGS ON KNEES
-hi i got by any/all... im pansexual...... uhmm...!!!! under 13 dni... ok thats all
+HOW D OI MAKE THIS LOOK GOOD IM STrUGGLING!!!!!! uts ojk i can figurer i t out im the bigegst bird
